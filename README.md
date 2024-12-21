@@ -26,6 +26,7 @@ The video attached to this NFT is encoded in
 
 Only three non-fungible tokens exist
 for this work, one for Jessica Kirsh,
+one for me and
 one for Elon Musk, when he will start showing
 some compassion and publicly pay some
 respect for hard work.
